@@ -100,7 +100,7 @@
 
 # MENU CRACK
 
-<a href="https://ibb.co/S7H2YwQ"><img src="https://i.ibb.co/dJXSC4b/Screenshot-20230522-122210-Termux.jpg" alt="Screenshot-20230522-122210-Termux" border="0"></a>
+<a href="https://ibb.co/vQ2zW21"><img src="https://i.ibb.co/vQ2zW21/Screenshot-20230604-173658-Termux.jpg" alt="Screenshot-20230604-173658-Termux" border="0"></a>
 
 # MENU FILE MAKE
 
@@ -108,17 +108,16 @@
 
  
 
- # METHOD FILE CLONE 
+ # FILE CLONE 
 
- <a href="https://ibb.co/D9txcRP"><img src="https://i.ibb.co/HtVWwHL/Screenshot-20230522-122439-Termux.jpg" alt="Screenshot-20230522-122439-Termux" border="0"></a>
+ <a href="https://ibb.co/Q9jGw47"><img src="https://i.ibb.co/Q9jGw47/Screenshot-20230601-070255-Termux.jpg" alt="Screenshot-20230601-070255-Termux" border="0"></a>
 
  
 
  
 
  # MIX ID CRACK
-
-<a href="https://ibb.co/9tNbybz"><img src="https://i.ibb.co/q5dNmNX/Screenshot-20230521-111735-Termux.jpg" alt="Screenshot-20230521-111735-Termux" border="0"></a>
+<a href="https://ibb.co/zP5NnTJ"><img src="https://i.ibb.co/zP5NnTJ/Screenshot-20230529-125638-Termux.jpg" alt="Screenshot-20230529-125638-Termux" border="0"></a>
 
  # OLD ID CRACK
 
