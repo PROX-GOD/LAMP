@@ -70,7 +70,7 @@
 
   
 
- [+] NOTICE :  ```YOU CAN BUY THIS SC FOR RS 150 A MONTH OR OPEN SOURCE AT 300``` <a href="https://wa.me/+9745477990">CLICK HERE TO BUY</a> 
+ [+] NOTICE :  ```YOU CAN BUY THIS SC A MONTH OR OPEN SOURCE AT 500``` <a href="https://wa.me/+9745477990">CLICK HERE TO BUY</a> 
 
   
 
@@ -96,7 +96,7 @@
 
   
 
- - SPECIAL THANKS TO: ```MR. SAJJAN.```
+ - IN COLLAB WITH: `` MR NITISH SARMA.```
 
 # MENU CRACK
 
