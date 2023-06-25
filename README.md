@@ -26,7 +26,7 @@
 
 
 
-      cd prohack 
+      cd LAMP
 
       
 
